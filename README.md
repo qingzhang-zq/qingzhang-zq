@@ -14,5 +14,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-- 👀 I am interested in planetary geology
+- 👀 I am interested in spectroscopy and planetary geology
 - 📫 Reach me: qingzhang.mars@gmail.com
